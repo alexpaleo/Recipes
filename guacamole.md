@@ -2,7 +2,7 @@
 Ingredients:
 - 2 avocados
 - 1/2 red onion
-- 1/2 jalepeno
+- 1/4 anehiem pepper
 - 1 lime
 - 2 tsp salt
 
